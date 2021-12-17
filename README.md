@@ -1,1 +1,0 @@
-# microsoft-nazi-state
